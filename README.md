@@ -1,2 +1,2 @@
-# temp2
-ghüdder
+# D'Hochzyt isch scho düre...
+& dr Nachwuchs isch oscho da!
